@@ -1,3 +1,5 @@
-⠀  ⠀⠀⠀⠀⠀⠀ <img width="701" height="661" alt="image" src="https://github.com/user-attachments/assets/8276fd88-25db-459b-a6eb-3fe429acc162" />⠀  ⠀⠀⠀  ⠀⠀  ⠀  ⠀⠀ ⠀
-<img width="2048" height="327" alt="image" src="https://github.com/user-attachments/assets/bd4a70f2-dd27-4b72-b77a-64f8e8bf79df" /> ⠀   ⠀  ⠀  ⠀⠀⠀  ⠀⠀  ⠀  ⠀⠀ ⠀
+⠀  ⠀⠀⠀⠀⠀⠀ <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/a28f2b5a-cd95-4104-a614-343571fd7403" />
+⠀  ⠀⠀⠀  ⠀⠀  ⠀  ⠀⠀ ⠀
+<img width="2048" height="327" alt="image" src="https://github.com/user-attachments/assets/258233d8-2a96-4066-9e74-15bfd74fa065" />
+ ⠀   ⠀  ⠀  ⠀⠀⠀  ⠀⠀  ⠀  ⠀⠀ ⠀
 [atabook](https://wouldustillloveme.atabook.org/)
