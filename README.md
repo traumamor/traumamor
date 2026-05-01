@@ -1,4 +1,2 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1024" height="695" alt="image" src="https://github.com/user-attachments/assets/fecb27dc-bbe9-4cd7-8e3e-37ee503c9252" />
-
-<img width="2048" height="327" alt="image" src="https://github.com/user-attachments/assets/258233d8-2a96-4066-9e74-15bfd74fa065" />⠀⠀⠀ ⠀⠀⠀ 
-[atabook](https://wouldustillloveme.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/cf396244-db6b-43a2-9557-929f1e250f8d" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/f3f823dc-a05e-4f4a-8876-472d9dc3dac7" />ㅤㅤㅤㅤㅤ⠀⠀ ⠀⠀⠀ 
+ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://wouldustillloveme.atabook.org/)
